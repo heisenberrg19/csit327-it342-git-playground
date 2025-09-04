@@ -12,5 +12,5 @@
 - Abella, Franchesca Louise (**@ChescaAbella**)
 - Go, Felix Christian (**@Lumity-13**)
 - Lo, Joshua Noel (**juswangs12**)
-- Garing, Mark Christian(**@k4iisel**)
+- Garing, Mark Christian (**@k4iisel**)
 
